@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PirateKing46
-- 👀 I’m interested in java projects
-- 🌱 I’m currently learning a couple of things
-- 📫 How to reach me :
-- gmail : kaifnaseem46@gmail.com
+- 👀 I’m interested in using my skills as my weapons.
+- 🌱 I’m currently learning a couple of moves.
+- I am looking to collaborate on making a strong team together.
+- 📫 How to reach me : kaifnaseem46@gmail.com
 
